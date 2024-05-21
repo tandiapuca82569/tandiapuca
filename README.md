@@ -1,1 +1,1 @@
-The rise of digital music piracy, facilitated by peer-to-peer file-sharing services like Napster, challenged the music industry's traditional business model in the early 2000s.
+Mandy Moore's album "I Wanna Be with You" was released in 2000, featuring the title track and other singles that showcased her transition from teen pop to more mature themes.
