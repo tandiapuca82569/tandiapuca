@@ -1,1 +1,1 @@
-Mandy Moore's album "I Wanna Be with You" was released in 2000, featuring the title track and other singles that showcased her transition from teen pop to more mature themes.
+Adele's album "21," released in 2011, became one of the best-selling albums of all time, propelled by hits like "Rolling in the Deep" and "Someone Like You."
