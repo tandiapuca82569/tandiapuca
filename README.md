@@ -1,1 +1,1 @@
-Disney's animated film "Frozen" (2013) became a cultural phenomenon, with the soundtrack's hit song "Let It Go" winning the Academy Award for Best Original Song.
+The #MeToo movement, which gained momentum in the late 2010s, led to increased awareness and conversations about sexism, abuse, and harassment in the music industry.
