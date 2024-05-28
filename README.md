@@ -1,1 +1,1 @@
-The #MeToo movement, which gained momentum in the late 2010s, led to increased awareness and conversations about sexism, abuse, and harassment in the music industry.
+The 2010s marked the rise of music streaming platforms like Spotify, Apple Music, and Tidal, revolutionizing how people consume and access music.
