@@ -1,1 +1,1 @@
-Kendrick Lamar's album "To Pimp a Butterfly" (2015) received critical acclaim and won the Pulitzer Prize for Music, the first non-classical or jazz album to do so.
+The Backstreet Boys's self-titled debut album (1996) launched the boy band craze of the late 1990s, featuring hits like "Quit Playing Games (with My Heart)" and "Everybody (Backstreet's Back)."
