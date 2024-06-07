@@ -1,1 +1,1 @@
-The Backstreet Boys's self-titled debut album (1996) launched the boy band craze of the late 1990s, featuring hits like "Quit Playing Games (with My Heart)" and "Everybody (Backstreet's Back)."
+The 1990s marked the globalization of music, with artists from around the world gaining international recognition and influencing cross-cultural exchange.
