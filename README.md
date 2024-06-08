@@ -1,1 +1,1 @@
-The 1990s marked the globalization of music, with artists from around the world gaining international recognition and influencing cross-cultural exchange.
+The grunge movement emerged from the Seattle music scene in the early 1990s, with bands like Nirvana, Pearl Jam, and Soundgarden gaining widespread popularity.
