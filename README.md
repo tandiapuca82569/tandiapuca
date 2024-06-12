@@ -1,1 +1,1 @@
-Ed Sheeran's album "÷" (Divide), released in 2017, dominated the charts with singles like "Shape of You," "Castle on the Hill," and "Perfect."
+The 2010s marked the rise of music streaming platforms like Spotify, Apple Music, and Tidal, revolutionizing how people consume and access music.
