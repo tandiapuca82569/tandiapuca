@@ -1,1 +1,1 @@
-The 2010s marked the rise of music streaming platforms like Spotify, Apple Music, and Tidal, revolutionizing how people consume and access music.
+Lil Nas X's "Old Town Road" (2019) broke records for the longest-running number-one single on the Billboard Hot 100 chart, spending 19 weeks at the top spot.
