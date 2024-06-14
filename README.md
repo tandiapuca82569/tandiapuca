@@ -1,1 +1,1 @@
-Lil Nas X's "Old Town Road" (2019) broke records for the longest-running number-one single on the Billboard Hot 100 chart, spending 19 weeks at the top spot.
+"Beautiful Day" by U2 won Song of the Year and Record of the Year at the 43rd Grammy Awards, while Christina Aguilera won Best New Artist.
