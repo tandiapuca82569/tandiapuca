@@ -1,1 +1,1 @@
-"Beautiful Day" by U2 won Song of the Year and Record of the Year at the 43rd Grammy Awards, while Christina Aguilera won Best New Artist.
+*NSYNC's album "No Strings Attached" debuted at number one on the Billboard 200 chart and set a record for the highest first-week sales at the time.
