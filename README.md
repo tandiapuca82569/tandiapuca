@@ -1,1 +1,1 @@
-The soundtrack for the film "O Brother, Where Art Thou?" was released in 2000 and became a surprise success, winning the Grammy Award for Album of the Year in 2002.
+The 43rd Annual Grammy Awards took place in 2001, honoring artists like U2, Santana, and Eminem, who won Album of the Year for "The Marshall Mathers LP."
