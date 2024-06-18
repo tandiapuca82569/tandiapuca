@@ -1,1 +1,1 @@
-*NSYNC's album "No Strings Attached" debuted at number one on the Billboard 200 chart and set a record for the highest first-week sales at the time.
+The soundtrack for the film "O Brother, Where Art Thou?" was released in 2000 and became a surprise success, winning the Grammy Award for Album of the Year in 2002.
