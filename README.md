@@ -1,1 +1,1 @@
-Backstreet Boys released their album "Black & Blue" in 2000, featuring singles like "Shape of My Heart" and "The Call."
+Songs like "I Am a Man of Constant Sorrow" performed by The Soggy Bottom Boys and "Down to the River to Pray" by Alison Krauss contributed to the soundtrack's acclaim.
