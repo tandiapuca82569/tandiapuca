@@ -1,1 +1,1 @@
-Songs like "I Am a Man of Constant Sorrow" performed by The Soggy Bottom Boys and "Down to the River to Pray" by Alison Krauss contributed to the soundtrack's acclaim.
+Drake's album "Views" (2016) spent multiple weeks at number one on the Billboard 200 chart and featured hits like "Hotline Bling" and "One Dance."
