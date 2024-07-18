@@ -1,1 +1,1 @@
-Backstreet Boys released their album "Black & Blue" in 2000, featuring singles like "Shape of My Heart" and "The Call."
+Oasis's album "(What's the Story) Morning Glory?" (1995) became a cultural phenomenon, featuring hits like "Wonderwall" and "Champagne Supernova."
