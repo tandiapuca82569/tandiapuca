@@ -1,1 +1,1 @@
-Nirvana's "Nevermind" (1991) popularized the grunge sound and became an anthem for Generation X, featuring hits like "Smells Like Teen Spirit."
+"Beautiful Day" by U2 won Song of the Year and Record of the Year at the 43rd Grammy Awards, while Christina Aguilera won Best New Artist.
