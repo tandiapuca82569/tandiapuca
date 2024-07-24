@@ -1,1 +1,1 @@
-"Beautiful Day" by U2 won Song of the Year and Record of the Year at the 43rd Grammy Awards, while Christina Aguilera won Best New Artist.
+Faith Hill's "Breathe" won the Grammy Award for Best Country Album, and the title track won Best Female Country Vocal Performance and Best Country Song.
