@@ -1,1 +1,1 @@
-Nirvana's "Nevermind" (1991) popularized the grunge sound and became an anthem for Generation X, featuring hits like "Smells Like Teen Spirit."
+The 1990s saw the rise of electronic music genres like techno, house, and trance, with artists like The Prodigy, Daft Punk, and Fatboy Slim leading the charge.
